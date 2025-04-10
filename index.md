@@ -2,7 +2,7 @@
 
 **Effective Date:** 10/04/2025
 
-Thank you for using the Email Writer Extension ("we", "our", or "us"). Your privacy is important to us. This Privacy Policy explains how we collect, use, and protect your information.
+Thank you for using our Email Writer Extension. Your privacy is important to us. This Privacy Policy explains how we collect, use, and protect your information.
 
 ---
 
